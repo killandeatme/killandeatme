@@ -15,6 +15,6 @@
 <img width="2000" height="550" alt="IMG_4600" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled72_20251120234422.png" />
 <p align="center">
 
-[strawpage‎](https://kirikosbloom.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](wip)
+[strawpage‎](https://phantmhive.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](wip)
  
 <img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251120223938.png" />
