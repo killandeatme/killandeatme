@@ -16,6 +16,7 @@
 <p align="center">
 
 [strawpage‎](https://phantmhive.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](wip)
-( intersct with care/caution, recent breakup is getting to me.. )
+
+( interact with care/caution, recent breakup is getting to me )
 
 <img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251120223938.png" />
