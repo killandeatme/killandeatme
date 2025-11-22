@@ -15,7 +15,7 @@
 <img width="2000" height="550" alt="IMG_4600" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled72_20251120234422.png" />
 <p align="center">
 
-[strawpage‎](https://phantmhive.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/kinplcehldr)
+[strawpage‎](https://phantmhive.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/angelizd)
 
 ( interact with care/caution, recent breakup is getting to me )
 
