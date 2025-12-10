@@ -3,7 +3,7 @@
 <img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251210113221.png" />
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=killandeatme&label=𐙚+views+++&color=08000A)   .ᐟ ⭑ 
+⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=killandeatme&label=𐙚+views+++&color=AFCDD4)   .ᐟ ⭑ 
 
  </h4>
 
