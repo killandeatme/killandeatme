@@ -1,6 +1,6 @@
 <div align="center">
  
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/Untitled86_20260205224957.png" />
+<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/Untitled93_20260205225231.png" />
 <h4 align="center"
  
 ⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=killandeatme&label=𐙚+views+++&color=AFCDD4)   .ᐟ ⭑ 
