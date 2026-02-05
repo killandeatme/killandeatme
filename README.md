@@ -1,6 +1,6 @@
 <div align="center">
  
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251210113221.png" />
+<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/Untitled86_20260205224957.png" />
 <h4 align="center"
  
 ⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=killandeatme&label=𐙚+views+++&color=AFCDD4)   .ᐟ ⭑ 
@@ -17,4 +17,3 @@
 
 [art twt](https://x.com/angeiizedd?s=21)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/luddz)
 
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251210113227.png" />
