@@ -15,5 +15,5 @@
 <img width="2000" height="550" alt="IMG_4600" src="https://github.com/angelizd/angelizd/blob/main/Untitled86_20260205224149.png" />
 <p align="center">
 
-[art twt](https://x.com/angeiizedd?s=21)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/luddz)
+[art twt](https://x.com/angeiizedd?s=21)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [old rentry](https://rentry.co/luddz)
 
